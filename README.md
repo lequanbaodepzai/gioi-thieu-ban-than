@@ -7,7 +7,7 @@ xin chào mình là Lê Quân Bảo sv năm 2 ngành sư phạm tin trường đ
 - Lập trình web
 - Đọc sách công nghệ
 - Chơi game và nghe nhạc
-- Thông tin liên hệ
+- Thông tin liên 
 - Email: lequanbao.depzai@gmail.com
 - Facebook:https://www.facebook.com/Baodeptraivailon
 - > "Học, học nữa, học mãi." - V.I. Lênin
